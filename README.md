@@ -1,4 +1,4 @@
-![2024-03-01_01 03 06](https://github.com/SkimrMe/A-Movies/assets/158807652/9b62a0fa-0942-448b-8645-5b6542cfbf33)# A-Movies  收录一些补档以及个人喜欢的视频
+# A-Movies  收录一些补档以及个人喜欢的视频
 <h1>b站补裆 av1979757 退教神器</h1>
 
 
@@ -43,19 +43,16 @@ https://github.com/SkimrMe/A-Movies/assets/158807652/c3c98b79-954a-4363-b2da-5ba
 <br>
 前
 <br>
-![2024-03-01_00 58 52](https://github.com/SkimrMe/A-Movies/assets/158807652/4fd47c92-1115-44e1-9a71-581ce2445a22)
-
-
-![2024-03-01_01 02 51](https://github.com/SkimrMe/A-Movies/assets/158807652/9089d806-a129-4a4e-86aa-11cf39edcc35)
-
-![2024-03-01_01 03 06](https://github.com/SkimrMe/A-Movies/assets/158807652/0f4a5f07-dfe4-4d69-b03b-948abc660797)
-
-
-![2024-03-01_01 03 34](https://github.com/SkimrMe/A-Movies/assets/158807652/66fb8500-c704-41f6-836d-4449b242a444)
-
-
-![2024-03-01_01 03 37](https://github.com/SkimrMe/A-Movies/assets/158807652/e311ccd1-34e0-4c77-a402-34d9658a7f41)
-
+![2024-03-01_00 58 50](https://github.com/SkimrMe/A-Movies/assets/158807652/c5d2e332-a6e9-4ecb-97b6-105c1540d6c8)
+<br>
+后
+![2024-03-01_01 02 51](https://github.com/SkimrMe/A-Movies/assets/158807652/95133764-6eaa-4c3f-972e-bef4873311b7)
+![2024-03-01_01 03 06](https://github.com/SkimrMe/A-Movies/assets/158807652/87564dce-4bec-4711-98ae-dbf2884c337d)
+<br>
+收获
+<br>
+![2024-03-01_01 03 34](https://github.com/SkimrMe/A-Movies/assets/158807652/26c53383-5772-499b-b663-d88bbd04ba85)
+![2024-03-01_01 03 37](https://github.com/SkimrMe/A-Movies/assets/158807652/b752891b-8786-4a2a-828c-da167b256ec3)
 
 
 
