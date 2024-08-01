@@ -38,24 +38,6 @@ https://github.com/SkimrMe/A-Movies/assets/158807652/c3c98b79-954a-4363-b2da-5ba
 <h1>分割线 分割线 分割线 分割线 分割线 分割线 分割线 分割线 分割线 分割线 分割线 分割线 分割线 分割线 分割线 分割线 分割线 分割线 </h1>
 <br>
 <h1>一些图片</h1>
-<h2>我的世界</h2>
-杀牛图
-<br>
-前
-<br>
-![2024-03-01_00 58 50](https://github.com/SkimrMe/A-Movies/assets/158807652/c5d2e332-a6e9-4ecb-97b6-105c1540d6c8)
-<br>
-后
-![2024-03-01_01 02 51](https://github.com/SkimrMe/A-Movies/assets/158807652/95133764-6eaa-4c3f-972e-bef4873311b7)
-![2024-03-01_01 03 06](https://github.com/SkimrMe/A-Movies/assets/158807652/87564dce-4bec-4711-98ae-dbf2884c337d)
-<br>
-收获
-<br>
-![2024-03-01_01 03 34](https://github.com/SkimrMe/A-Movies/assets/158807652/26c53383-5772-499b-b663-d88bbd04ba85)
-![2024-03-01_01 03 37](https://github.com/SkimrMe/A-Movies/assets/158807652/b752891b-8786-4a2a-828c-da167b256ec3)
-
-
-
 
 
 
